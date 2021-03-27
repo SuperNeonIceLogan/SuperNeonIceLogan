@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @SuperNeonIceLogan
+- 👀 I’m interested in Animation
+- 🌱 I’m currently learning How Animation is made
+- 💞️ I’m looking to collaborate on Working For Sony
